@@ -4,13 +4,13 @@ This document allows the owner of private land to grant a limited time access to
 
 The holder of this permit climbs with full knowledge of the dangers involved and assumes any risk of injury and death caused by the inherent dangers of the sport. It is understood that the land-owner(s) does not maintain the rocks, cliffs or other natural features of the terrain. They do not provide supervision or instruction, do not approve qualifications or certify instructors in any manner and are not responsible for the climbing protection on the cliffs (for example: bolts, pitons, rappel slings, rings).
 
-• The holder of this permit recognizes the natural hazards of natural areas including forested, mountainous, desert and/or alpine areas and assumes all risk of personal injury caused by such hazards.
-• The holder acknowledges that skill and training are essential in rock climbing.
-• Be aware of the existence of other people and do not throw or kick any objects from cliff.
-• Use service roads and marked access trails only; carry out all litter; do not disturb plants or wildlife.
-• Dogs must be kept on leashes, six feet or less, at all times.
-• Use clean climbing techniques only. The use of bolts and pitons are strictly prohibited. No permanent alterations to the natural structures are permitted.
-• No fires, motor vehicles, radios, glass containers or alcohol. The permit holder must hike-in to the climbing area. 
+- The holder of this permit recognizes the natural hazards of natural areas including forested, mountainous, desert and/or alpine areas and assumes all risk of personal injury caused by such hazards.
+- The holder acknowledges that skill and training are essential in rock climbing.
+- Be aware of the existence of other people and do not throw or kick any objects from cliff.
+- Use service roads and marked access trails only; carry out all litter; do not disturb plants or wildlife.
+- Dogs must be kept on leashes, six feet or less, at all times.
+- Use clean climbing techniques only. The use of bolts and pitons are strictly prohibited. No permanent alterations to the natural structures are permitted.
+- No fires, motor vehicles, radios, glass containers or alcohol. The permit holder must hike-in to the climbing area. 
 
 The holder of this permit is allowed access to the property between the dates:
 
